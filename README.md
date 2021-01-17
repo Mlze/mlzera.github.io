@@ -1,1 +1,1 @@
-# mizera.github.io
+# mizerka.github.io
